@@ -1,2 +1,2 @@
 # assign2git
-Elijah Kaufman Is the best student ever woohoo
+Elijah Kaufman Is the best student ever!
